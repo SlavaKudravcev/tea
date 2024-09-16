@@ -80,3 +80,4 @@ Stay hungry, stay foolish.
 Opportunities don't happen. You create them.
 Simplicity is the ultimate sophistication.
 Dream big and dare to fail.
+Simplicity is the ultimate sophistication.
