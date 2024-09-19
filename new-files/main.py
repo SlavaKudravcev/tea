@@ -77,3 +77,4 @@ Stay hungry, stay foolish.
 Stay hungry, stay foolish.
 Stay hungry, stay foolish.
 Stay hungry, stay foolish.
+Opportunities don't happen. You create them.
