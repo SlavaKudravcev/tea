@@ -67,3 +67,4 @@ Stay hungry, stay foolish.
 The only way to do great work is to love what you do.
 Success usually comes to those who are too busy to be looking for it.
 Innovation distinguishes between a leader and a follower.
+Dream big and dare to fail.
