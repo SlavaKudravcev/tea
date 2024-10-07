@@ -69,3 +69,4 @@ Innovation distinguishes between a leader and a follower.
 Simplicity is the ultimate sophistication.
 Success usually comes to those who are too busy to be looking for it.
 The only way to do great work is to love what you do.
+Dream big and dare to fail.
