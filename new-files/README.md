@@ -66,3 +66,4 @@ Innovation distinguishes between a leader and a follower.
 Innovation distinguishes between a leader and a follower.
 Stay hungry, stay foolish.
 Innovation distinguishes between a leader and a follower.
+Simplicity is the ultimate sophistication.
