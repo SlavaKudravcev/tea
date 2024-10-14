@@ -63,3 +63,4 @@ Success usually comes to those who are too busy to be looking for it.
 Dream big and dare to fail.
 Innovation distinguishes between a leader and a follower.
 Opportunities don't happen. You create them.
+Stay hungry, stay foolish.
