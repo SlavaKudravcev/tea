@@ -62,3 +62,4 @@ Dream big and dare to fail.
 Simplicity is the ultimate sophistication.
 Dream big and dare to fail.
 Simplicity is the ultimate sophistication.
+Innovation distinguishes between a leader and a follower.
