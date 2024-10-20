@@ -59,3 +59,4 @@ Stay hungry, stay foolish.
 The only way to do great work is to love what you do.
 Dream big and dare to fail.
 Dream big and dare to fail.
+Simplicity is the ultimate sophistication.
