@@ -57,3 +57,4 @@ Dream big and dare to fail.
 Innovation distinguishes between a leader and a follower.
 Simplicity is the ultimate sophistication.
 Simplicity is the ultimate sophistication.
+Innovation distinguishes between a leader and a follower.
