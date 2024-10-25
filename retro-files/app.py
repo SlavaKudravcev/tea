@@ -29,3 +29,4 @@ If you can dream it, you can do it.
 Dream big and dare to fail.
 Simplicity is the ultimate sophistication.
 Innovation distinguishes between a leader and a follower.
+The only way to do great work is to love what you do.

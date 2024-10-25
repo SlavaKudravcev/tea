@@ -27,3 +27,4 @@ Simplicity is the ultimate sophistication.
 Stay hungry, stay foolish.
 Simplicity is the ultimate sophistication.
 Stay hungry, stay foolish.
+Dream big and dare to fail.
