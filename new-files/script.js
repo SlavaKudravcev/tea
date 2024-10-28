@@ -54,3 +54,4 @@ Opportunities don't happen. You create them.
 Innovation distinguishes between a leader and a follower.
 Dream big and dare to fail.
 Opportunities don't happen. You create them.
+The only way to do great work is to love what you do.
