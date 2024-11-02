@@ -25,3 +25,4 @@ Stay hungry, stay foolish.
 Stay hungry, stay foolish.
 Simplicity is the ultimate sophistication.
 Stay hungry, stay foolish.
+Simplicity is the ultimate sophistication.
