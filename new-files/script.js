@@ -47,3 +47,4 @@ Simplicity is the ultimate sophistication.
 Stay hungry, stay foolish.
 Dream big and dare to fail.
 Innovation distinguishes between a leader and a follower.
+Success usually comes to those who are too busy to be looking for it.
