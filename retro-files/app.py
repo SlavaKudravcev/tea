@@ -20,3 +20,4 @@ Opportunities don't happen. You create them.
 Dream big and dare to fail.
 If you can dream it, you can do it.
 Dream big and dare to fail.
+The only way to do great work is to love what you do.
