@@ -19,3 +19,4 @@ If you can dream it, you can do it.
 Opportunities don't happen. You create them.
 Dream big and dare to fail.
 If you can dream it, you can do it.
+Dream big and dare to fail.
