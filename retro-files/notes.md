@@ -15,3 +15,4 @@ Stay hungry, stay foolish.
 Stay hungry, stay foolish.
 If you can dream it, you can do it.
 Don't be afraid to give up the good to go for the great.
+Stay hungry, stay foolish.
