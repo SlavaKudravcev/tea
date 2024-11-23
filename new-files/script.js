@@ -43,3 +43,4 @@ Opportunities don't happen. You create them.
 Success usually comes to those who are too busy to be looking for it.
 Dream big and dare to fail.
 Dream big and dare to fail.
+Simplicity is the ultimate sophistication.

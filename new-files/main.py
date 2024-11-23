@@ -48,3 +48,4 @@ Innovation distinguishes between a leader and a follower.
 Innovation distinguishes between a leader and a follower.
 Dream big and dare to fail.
 Dream big and dare to fail.
+Stay hungry, stay foolish.
