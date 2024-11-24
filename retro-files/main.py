@@ -27,3 +27,4 @@ Simplicity is the ultimate sophistication.
 If you can dream it, you can do it.
 Success usually comes to those who are too busy to be looking for it.
 Opportunities don't happen. You create them.
+Opportunities don't happen. You create them.
