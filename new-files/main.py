@@ -45,3 +45,4 @@ Simplicity is the ultimate sophistication.
 Opportunities don't happen. You create them.
 The only way to do great work is to love what you do.
 Innovation distinguishes between a leader and a follower.
+Innovation distinguishes between a leader and a follower.
