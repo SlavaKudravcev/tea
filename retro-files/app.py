@@ -17,3 +17,4 @@ Success usually comes to those who are too busy to be looking for it.
 If you can dream it, you can do it.
 If you can dream it, you can do it.
 Opportunities don't happen. You create them.
+Dream big and dare to fail.
