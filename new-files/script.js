@@ -38,3 +38,4 @@ Dream big and dare to fail.
 The only way to do great work is to love what you do.
 Innovation distinguishes between a leader and a follower.
 Dream big and dare to fail.
+Opportunities don't happen. You create them.
