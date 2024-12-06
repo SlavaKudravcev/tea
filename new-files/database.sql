@@ -10,3 +10,4 @@ Innovation distinguishes between a leader and a follower.
 Simplicity is the ultimate sophistication.
 Don't be afraid to give up the good to go for the great.
 Simplicity is the ultimate sophistication.
+If you can dream it, you can do it.
