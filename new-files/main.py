@@ -40,3 +40,4 @@ Opportunities don't happen. You create them.
 Stay hungry, stay foolish.
 Dream big and dare to fail.
 The only way to do great work is to love what you do.
+Stay hungry, stay foolish.
