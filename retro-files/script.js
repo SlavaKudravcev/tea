@@ -17,3 +17,4 @@ Opportunities don't happen. You create them.
 Act as if what you do makes a difference. It does.
 Dream big and dare to fail.
 Opportunities don't happen. You create them.
+Dream big and dare to fail.
