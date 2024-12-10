@@ -12,3 +12,4 @@ Innovation distinguishes between a leader and a follower.
 If you can dream it, you can do it.
 Act as if what you do makes a difference. It does.
 Simplicity is the ultimate sophistication.
+Opportunities don't happen. You create them.
