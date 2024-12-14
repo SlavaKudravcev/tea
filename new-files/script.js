@@ -34,3 +34,4 @@ Innovation distinguishes between a leader and a follower.
 The only way to do great work is to love what you do.
 Innovation distinguishes between a leader and a follower.
 Simplicity is the ultimate sophistication.
+Dream big and dare to fail.
