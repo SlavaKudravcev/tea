@@ -16,3 +16,4 @@ Act as if what you do makes a difference. It does.
 Don't be afraid to give up the good to go for the great.
 Act as if what you do makes a difference. It does.
 Innovation distinguishes between a leader and a follower.
+The only way to do great work is to love what you do.
