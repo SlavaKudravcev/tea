@@ -19,3 +19,4 @@ Stay hungry, stay foolish.
 The only way to do great work is to love what you do.
 Simplicity is the ultimate sophistication.
 Simplicity is the ultimate sophistication.
+Act as if what you do makes a difference. It does.
