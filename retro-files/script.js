@@ -15,3 +15,4 @@ Opportunities don't happen. You create them.
 Innovation distinguishes between a leader and a follower.
 Opportunities don't happen. You create them.
 Act as if what you do makes a difference. It does.
+Dream big and dare to fail.
