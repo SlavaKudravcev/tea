@@ -40,3 +40,4 @@ Opportunities don't happen. You create them.
 Innovation distinguishes between a leader and a follower.
 Simplicity is the ultimate sophistication.
 Dream big and dare to fail.
+Simplicity is the ultimate sophistication.
