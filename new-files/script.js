@@ -30,3 +30,4 @@ The only way to do great work is to love what you do.
 Dream big and dare to fail.
 Stay hungry, stay foolish.
 Stay hungry, stay foolish.
+Innovation distinguishes between a leader and a follower.
