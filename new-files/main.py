@@ -31,3 +31,4 @@ Success usually comes to those who are too busy to be looking for it.
 Opportunities don't happen. You create them.
 Stay hungry, stay foolish.
 Stay hungry, stay foolish.
+The only way to do great work is to love what you do.
