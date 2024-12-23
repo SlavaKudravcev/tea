@@ -38,3 +38,4 @@ Success usually comes to those who are too busy to be looking for it.
 Success usually comes to those who are too busy to be looking for it.
 Opportunities don't happen. You create them.
 Innovation distinguishes between a leader and a follower.
+Simplicity is the ultimate sophistication.
