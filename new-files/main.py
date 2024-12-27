@@ -28,3 +28,4 @@ Opportunities don't happen. You create them.
 Dream big and dare to fail.
 Stay hungry, stay foolish.
 Success usually comes to those who are too busy to be looking for it.
+Opportunities don't happen. You create them.
