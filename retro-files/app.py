@@ -8,3 +8,4 @@ The only way to do great work is to love what you do.
 Act as if what you do makes a difference. It does.
 Dream big and dare to fail.
 Innovation distinguishes between a leader and a follower.
+Innovation distinguishes between a leader and a follower.
