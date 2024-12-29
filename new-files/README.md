@@ -35,3 +35,4 @@ Opportunities don't happen. You create them.
 Success usually comes to those who are too busy to be looking for it.
 Innovation distinguishes between a leader and a follower.
 Success usually comes to those who are too busy to be looking for it.
+Success usually comes to those who are too busy to be looking for it.
