@@ -26,3 +26,4 @@ Innovation distinguishes between a leader and a follower.
 The only way to do great work is to love what you do.
 Opportunities don't happen. You create them.
 Dream big and dare to fail.
+Stay hungry, stay foolish.
