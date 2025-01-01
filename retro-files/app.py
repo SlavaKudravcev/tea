@@ -6,3 +6,4 @@ The only way to do great work is to love what you do.
 If you can dream it, you can do it.
 The only way to do great work is to love what you do.
 Act as if what you do makes a difference. It does.
+Dream big and dare to fail.
