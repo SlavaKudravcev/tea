@@ -23,3 +23,4 @@ Innovation distinguishes between a leader and a follower.
 Stay hungry, stay foolish.
 Opportunities don't happen. You create them.
 Opportunities don't happen. You create them.
+Stay hungry, stay foolish.
