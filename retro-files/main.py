@@ -12,3 +12,4 @@ Success usually comes to those who are too busy to be looking for it.
 Opportunities don't happen. You create them.
 Opportunities don't happen. You create them.
 If you can dream it, you can do it.
+Act as if what you do makes a difference. It does.
