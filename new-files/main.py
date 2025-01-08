@@ -22,3 +22,4 @@ Success usually comes to those who are too busy to be looking for it.
 Success usually comes to those who are too busy to be looking for it.
 Simplicity is the ultimate sophistication.
 Innovation distinguishes between a leader and a follower.
+Innovation distinguishes between a leader and a follower.
