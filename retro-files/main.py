@@ -7,3 +7,4 @@ Don't be afraid to give up the good to go for the great.
 If you can dream it, you can do it.
 Opportunities don't happen. You create them.
 Dream big and dare to fail.
+Dream big and dare to fail.
