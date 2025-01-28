@@ -17,3 +17,4 @@ Stay hungry, stay foolish.
 Opportunities don't happen. You create them.
 Dream big and dare to fail.
 Simplicity is the ultimate sophistication.
+Opportunities don't happen. You create them.
