@@ -12,3 +12,4 @@ Opportunities don't happen. You create them.
 Stay hungry, stay foolish.
 Success usually comes to those who are too busy to be looking for it.
 Stay hungry, stay foolish.
+Dream big and dare to fail.
