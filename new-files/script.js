@@ -10,3 +10,4 @@ Success usually comes to those who are too busy to be looking for it.
 Dream big and dare to fail.
 Opportunities don't happen. You create them.
 Stay hungry, stay foolish.
+Success usually comes to those who are too busy to be looking for it.
