@@ -19,3 +19,4 @@ Simplicity is the ultimate sophistication.
 The only way to do great work is to love what you do.
 Innovation distinguishes between a leader and a follower.
 Stay hungry, stay foolish.
+Success usually comes to those who are too busy to be looking for it.
