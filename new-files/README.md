@@ -18,3 +18,4 @@ The only way to do great work is to love what you do.
 Simplicity is the ultimate sophistication.
 The only way to do great work is to love what you do.
 Innovation distinguishes between a leader and a follower.
+Stay hungry, stay foolish.
