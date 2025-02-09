@@ -7,3 +7,4 @@ Stay hungry, stay foolish.
 Success usually comes to those who are too busy to be looking for it.
 Act as if what you do makes a difference. It does.
 Success usually comes to those who are too busy to be looking for it.
+Dream big and dare to fail.
