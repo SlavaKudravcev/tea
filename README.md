@@ -1,1 +1,1 @@
-Hi! This is the tea-app-app project!
+Hi! This is my tea-app-app project!
